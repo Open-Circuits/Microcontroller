@@ -1,0 +1,1 @@
+- [I tried the Cheapest Arduino Alternative (that Nobody heard of)](https://youtu.be/9IFSPqSr6t8)
